@@ -6,6 +6,28 @@
 
   
 
-  ​                                                                                 **meus objetivos**
+  ​                                                                                 **meus objetivos no momento**
 
-* 
+* terminar meu curso de programação
+
+* terminar meu curso de italiano
+
+* terminar meu curso de inglês 
+                        
+                                                                                     **habilidades**
+
+* conhecimento em italiano
+
+*  e em inglês
+
+*  Excel básico
+
+*  word  básico
+
+*  Power point básico
+
+*  computação avançada
+
+*  digitação avançada,
+
+* (futebol avançado kkk)
