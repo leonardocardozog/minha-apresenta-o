@@ -13,7 +13,7 @@
 * terminar meu curso de inglês
   **Habilidades**
                                                                              
-* 
+  
   
 * conhecimento em italiano
 
