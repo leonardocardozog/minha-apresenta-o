@@ -6,16 +6,19 @@
 
   
 
-  ​                                                                                 **meus objetivos no momento**
+                                                                                   ## Meus objetivos no momento
+
+  
 
 * terminar meu curso de programação
 
 * terminar meu curso de italiano
 
 * terminar meu curso de inglês
+                                                                 ##                      Habilidades
+                                                                             
   
-                                                                               ## Habilidades
-
+  
 * conhecimento em italiano
 
 *  e em inglês
