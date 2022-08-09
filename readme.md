@@ -11,8 +11,13 @@
 * terminar meu curso de italiano
 
 * terminar meu curso de inglês
-  **Habilidades**
+  
                                                                              
+
+  
+  
+  **Habilidades**
+  
   
   
 * conhecimento em italiano
