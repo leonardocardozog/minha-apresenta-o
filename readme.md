@@ -14,9 +14,7 @@
 
 * terminar meu curso de inglês 
   
-                                                                                 **Habilidades**
-
-  ​                                                              
+* ​                                                  **Habilidades**
   
 * conhecimento em italiano
 
